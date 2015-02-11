@@ -30,7 +30,8 @@ We propose looking at the following facets of  immigrant life to figure out patt
 
 With the following methods, we will attempt to construct a more accurate picture of the modern Irish immigrant in New York as opposed to the romanticized portrayal of Irish American experiences that have arisen over the past 150 years.
 
-Some sources we can start with: [Immigration Explorer](http://www.nytimes.com/interactive/2009/03/10/us/20090310-immigration-explorer.html?_r=0)
+Some sources we can start with: 
+[Immigration Explorer](http://www.nytimes.com/interactive/2009/03/10/us/20090310-immigration-explorer.html?_r=0)
 
 [Social Explorer](http://www.socialexplorer.com/)
 
