@@ -19,7 +19,7 @@ When we look at a closer view of the New York metro area, we see that there are 
 <img src=http://placehold.it/400x65/000000/FFFFFF&text=Further+ideas+on+the+subject>
 
 
-<img src=http://placehold.it/600x100/000000/FFFFFF&text=further+data+on+lesbian+acceptance>
+<img src=http://placehold.it/600x100/000000/FFFFFF&text=Pockets+of+current+Irish+immigration+in+New+York>
 
 <img src=http://placehold.it/600x100/FFFFFF/000000&text=ideas+on+lesbians+wanting+to+be+included>
 <img src=http://placehold.it/600x100/FFFFFF/000000&text=possible+survey+on+queer+women>
