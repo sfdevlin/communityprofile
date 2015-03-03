@@ -10,7 +10,7 @@ The Irish community in the United States has been vibrant and influential since 
   
   <img src=http://placehold.it/600x100/000000/FFFFFF&text=Irish+Ancestry+in+the+NYC+area>
   
-[Imgur](http://i.imgur.com/iLHdHvI.jpg)
+![Imgur](http://i.imgur.com/iLHdHvI.jpg)
   
 In the media, gay men are very much more prominent than gay women, both as executives and as personalities. On television, gay men may not always be represented in the best light, however they don't go through trists of bisexuality. Often television writers have women engage in bisexual relationships, which they deem as exciting surprises for their viewers.This is often demonstrated  during the infamous "sweeps week," in which television shows go all out for the highest ratings possible  for their season finale. 
   
