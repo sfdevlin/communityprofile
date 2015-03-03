@@ -6,7 +6,7 @@ The Irish community in the United States has been vibrant and influential since 
 
 ![Imgur](http://i.imgur.com/Qf5DEUW.jpg?1)
 
-  The data on lesbian salaries/income/how much time they spend consuming media would be an incentive for their inclusion on more mainstream platforms, and not just on lesbian outlets. The point of our research is to go beyond just same sex marriage/LGBT rights, and to create a reason for the media to see how  the inclusion of the queer  community and not only "separate but equal platforms, in mainstream culture will have great economic advantages for these companies. 
+  The data, which comes from the American community survey, shows that Irish Americans tend to be concentrated on the coasts, particularly in the Northeast.  This is likely due to the historical incentive for the Irish to settle in cities where there were manufacturing bases.  This is particularly true of the major hubs in Boston, Philadelphia, and New York City.
   
   <img src=http://placehold.it/600x100/000000/FFFFFF&text=data+on+lesbians+in+workplace>
   
