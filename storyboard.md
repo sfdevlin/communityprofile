@@ -21,6 +21,6 @@ When we look at a closer view of the New York metro area, we see that there are 
 
 <img src=http://placehold.it/600x100/000000/FFFFFF&text=Pockets+of+current+Irish+immigration+in+New+York>
 
-<img src=http://placehold.it/600x100/FFFFFF/000000&text=ideas+on+lesbians+wanting+to+be+included>
+<img src=http://placehold.it/600x100/000000/FFFFFF&text=Survey+of+current+Irish+immigrants+on+their+reasons+for+coming+to+New+York>
 <img src=http://placehold.it/600x100/FFFFFF/000000&text=possible+survey+on+queer+women>
 ![Imgur](http://i.imgur.com/vX8izZm.png)
