@@ -1,16 +1,24 @@
-The Irish Immigrant Community in New York City
+**Overview**
 
-By Sean Devlin and James Wasserman
+The Irish community in the United States has been vibrant and influential since the first major waves of migration from Ireland to the U.S. began in the mid nineteenth century.  More than 1 in 10 Americans claim some Irish ancestry, and over half the presidents of the U.S. also have some Irish background. 
 
-## Background
+<img src="http://placehold.it/Where+Irish+Americans+Live+in+America">
 
-The Irish community in New York city has long been a vibrant one, especially since the 19th century beginning with the Irish Potato Famine and the influx of immigrants that left Irish shores for American during it.  Irish influence can be seen all over New York City, with many Irish restaurants and bars staffed by Irish citizens themselves, to place names for Irish-Americans like the Hugh L. Carey Tunnel, and New York's own Gaelic Athletic Association, a unique organization of its kind in the United States, promotin Irish sporting events.  In addition, there are multiple Irish community centers and immigration centers across the city, as New York remains to this day one of the biggest stopping points for Irish immigrants well into the 21st century.
+![Imgur](http://i.imgur.com/eS6FjtD.png)
 
-## Today
+  The data on lesbian salaries/income/how much time they spend consuming media would be an incentive for their inclusion on more mainstream platforms, and not just on lesbian outlets. The point of our research is to go beyond just same sex marriage/LGBT rights, and to create a reason for the media to see how  the inclusion of the queer  community and not only "separate but equal platforms, in mainstream culture will have great economic advantages for these companies. 
+  
+  <img src=http://placehold.it/600x100/000000/FFFFFF&text=data+on+lesbians+in+workplace>
+  
+In the media, gay men are very much more prominent than gay women, both as executives and as personalities. On television, gay men may not always be represented in the best light, however they don't go through trists of bisexuality. Often television writers have women engage in bisexual relationships, which they deem as exciting surprises for their viewers.This is often demonstrated  during the infamous "sweeps week," in which television shows go all out for the highest ratings possible  for their season finale. 
+  
+![Imgur](http://i.imgur.com/sDrLnkJ.png)
 
-These days, the two biggest Boroughs in terms of Irish immigration are The Bronx and Queens.  Two organizations, the Aisling Community Center and The Emerald Isle Immigration Center, work with immigrants to find employment, schooling, and networking opportunities in the United States.  A major part of the appeal of the New York City area, in additon to a plethora of other Irish immigrants to form community bonds with, relates to the fact that many migrants are monolingual English speakers, and do not have to learn a new language upon their move.  However, the Aisling (pronounced ash-ling) Community Center, among other places in the city, offers Irish language classes to all, not just those who have migrated from Ireland.
+<img src=http://placehold.it/400x65/000000/FFFFFF&text=lesbian+visibility+on+TV>
 
-## Issues
 
-Despite Irish-Americans being one of the largest and most visible ethnic groups in New York City, Irish immigrants still have struggles to deal with.  One of these main issues centers on visa problems.  Many young Irish come to the United States on yearlong work or student visas, and some can have troubles renewing or changing the status of these visas.  Additionally, some will even continue working illegally simply to make ends meet.  Resources are made available for migrants through the IIIC (International Irish Immigration Center) to gain insight and help with visa/residence problems.
+<img src=http://placehold.it/600x100/000000/FFFFFF&text=further+data+on+lesbian+acceptance>
 
+<img src=http://placehold.it/600x100/FFFFFF/000000&text=ideas+on+lesbians+wanting+to+be+included>
+<img src=http://placehold.it/600x100/FFFFFF/000000&text=possible+survey+on+queer+women>
+![Imgur](http://i.imgur.com/vX8izZm.png)
