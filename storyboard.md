@@ -6,9 +6,9 @@ The Irish community in the United States has been vibrant and influential since 
 
 ![Imgur](http://i.imgur.com/Qf5DEUW.jpg?1)
 
-  The data, which comes from the American community survey, shows that Irish Americans tend to be concentrated on the coasts, particularly in the Northeast.  This is likely due to the historical incentive for the Irish to settle in cities where there were manufacturing bases.  This is particularly true of the major hubs in Boston, Philadelphia, and New York City.
+  The data, which comes from the American Community Survey, shows that Irish Americans tend to be concentrated on the coasts, particularly in the Northeast.  This is likely due to the historical incentive for the Irish to settle in cities where there were manufacturing bases.  This is particularly true of the major hubs in Boston, Philadelphia, and New York City.
   
-  <img src=http://placehold.it/600x100/000000/FFFFFF&text=data+on+lesbians+in+workplace>
+  <img src=http://placehold.it/600x100/000000/FFFFFF&text=Irish+Ancestry+in+the+NYC+area>
   
 In the media, gay men are very much more prominent than gay women, both as executives and as personalities. On television, gay men may not always be represented in the best light, however they don't go through trists of bisexuality. Often television writers have women engage in bisexual relationships, which they deem as exciting surprises for their viewers.This is often demonstrated  during the infamous "sweeps week," in which television shows go all out for the highest ratings possible  for their season finale. 
   
