@@ -4,7 +4,7 @@ The Irish community in the United States has been vibrant and influential since 
 
 <img src="http://placehold.it/Where+Irish+Americans+Live+in+America">
 
-[Imgur](http://i.imgur.com/Qf5DEUW.jpg?1)
+![Imgur](http://i.imgur.com/eS6FjtD.png)
 
   The data on lesbian salaries/income/how much time they spend consuming media would be an incentive for their inclusion on more mainstream platforms, and not just on lesbian outlets. The point of our research is to go beyond just same sex marriage/LGBT rights, and to create a reason for the media to see how  the inclusion of the queer  community and not only "separate but equal platforms, in mainstream culture will have great economic advantages for these companies. 
   
