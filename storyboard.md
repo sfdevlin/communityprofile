@@ -14,9 +14,9 @@ The Irish community in the United States has been vibrant and influential since 
   
 When we look at a closer view of the New York metro area, we see that there are larger concentrations of Irish Americans in the suburbs surrounding New York rather than the city itself, with the exception of a few spots in Queens, The Bronx, and Staten Island where current immigration is still strong.  This leads us to the conclusion that due to the fact that the Irish are one of the older immigrant groups in the United States, they have had more time to financially establish themselves and escape the city for higher income housing and job opportunities in the suburbs. 
   
-![Imgur](http://i.imgur.com/sDrLnkJ.png)
 
-<img src=http://placehold.it/400x65/000000/FFFFFF&text=lesbian+visibility+on+TV>
+
+<img src=http://placehold.it/400x65/000000/FFFFFF&text=Further+ideas+on+the+subject>
 
 
 <img src=http://placehold.it/600x100/000000/FFFFFF&text=further+data+on+lesbian+acceptance>
