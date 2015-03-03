@@ -12,7 +12,7 @@ The Irish community in the United States has been vibrant and influential since 
   
 ![Imgur](http://i.imgur.com/iLHdHvI.jpg)
   
-In the media, gay men are very much more prominent than gay women, both as executives and as personalities. On television, gay men may not always be represented in the best light, however they don't go through trists of bisexuality. Often television writers have women engage in bisexual relationships, which they deem as exciting surprises for their viewers.This is often demonstrated  during the infamous "sweeps week," in which television shows go all out for the highest ratings possible  for their season finale. 
+When we look at a closer view of the New York metro area, we see that there are larger concentrations of Irish Americans in the suburbs surrounding New York rather than the city itself, with the exception of a few spots in Queens, The Bronx, and Staten Island where current immigration is still strong.  This leads us to the conclusion that due to the fact that the Irish are one of the older immigrant groups in the United States, they have had more time to financially establish themselves and escape the city for higher income housing and job opportunities in the suburbs. 
   
 ![Imgur](http://i.imgur.com/sDrLnkJ.png)
 
