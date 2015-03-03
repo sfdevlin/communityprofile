@@ -15,12 +15,11 @@ The Irish community in the United States has been vibrant and influential since 
 When we look at a closer view of the New York metro area, we see that there are larger concentrations of Irish Americans in the suburbs surrounding New York rather than the city itself, with the exception of a few spots in Queens, The Bronx, and Staten Island where current immigration is still strong.  This leads us to the conclusion that due to the fact that the Irish are one of the older immigrant groups in the United States, they have had more time to financially establish themselves and escape the city for higher income housing and job opportunities in the suburbs. 
   
 
-
 <img src=http://placehold.it/400x65/000000/FFFFFF&text=Further+ideas+on+the+subject>
 
 
 <img src=http://placehold.it/600x100/000000/FFFFFF&text=Pockets+of+current+Irish+immigration+in+New+York>
 
 <img src=http://placehold.it/600x100/000000/FFFFFF&text=Survey+of+current+Irish+immigrants+on+their+reasons+for+coming+to+New+York>
-<img src=http://placehold.it/600x100/FFFFFF/000000&text=possible+survey+on+queer+women>
-![Imgur](http://i.imgur.com/vX8izZm.png)
+
+New York City remains one of the final real strongholds of Irish immigration to the United States in the 21st century.  With robust communities in both Queens and The Bronx (including cultural centers, sports clubs, and immigration status aids at the Emerald Isle Immigration Center in Queens), there are plenty of resources to further our work on the subject. 
