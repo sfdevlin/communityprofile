@@ -2,7 +2,7 @@
 
 The Irish community in the United States has been vibrant and influential since the first major waves of migration from Ireland to the U.S. began in the mid nineteenth century.  More than 1 in 10 Americans claim some Irish ancestry, and over half the presidents of the U.S. also have some Irish background. 
 
-<img src=http://placehold.it/450x100/000000/FFFFFF&text=Where+Irisht+Americans+Live>
+<img src="http://placehold.it/Where+Irish+Americans+Live+in+America">
 
 ![Imgur](http://i.imgur.com/eS6FjtD.png)
 
